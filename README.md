@@ -1,7 +1,7 @@
-C#, Python, JavaScript
-Dog person
-Violinist
-Tubist
+C#, Python, JavaScript  
+Dog person  
+Violinist  
+Tubist  
 VR is cool
 
 <!---
