@@ -1,12 +1,8 @@
-C#, Python, Java  
-Dog person  
-Violinist  
-Tubist  
-VR is cool
-
-My profile picture was partially made with DALL·E 2, please don't execute me, I made it before all the stigma
-
-<!---
-Pangolian/Pangolian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+THIS PERSON IS UTTERLY AND ENTIRELY INSANE
+THEIR ONLY GOAL IN LIFE IS DESTRUCTION AND THEIR ONLY DRIVER IS PAIN
+HE OBSERVES THE MISERY OF HIS PEERS AND LAUGHS AT THEIR AGONY
+HE BATHES IN FIRE AND CLEANS HIS CLOTHES IN BLOOD
+HE CONSUMES THE SOULS OF HIS FRIENDS UNTIL THEY ARE NO MORE
+HIS HANDS ARE MADE OF KNIVES AND HIS TEETH OF STEEL
+And now they want to know what I'm writing
+- Written by [DedFishy](https://github.com/DedFishy), edited by me
